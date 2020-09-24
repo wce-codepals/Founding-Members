@@ -11,4 +11,4 @@ Founding Members:
 8) Nikhil Pathak 
 9) Kauzi Joshi 
 10) Sumedh Dhakre 
-11) ashtnemi448
+11) Atharwa Adawadkar
